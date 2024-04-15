@@ -22,5 +22,5 @@ Atualmente estou focada nos meus estudos, mas estou ansiosa para ganhar experiê
 
 ## 📫 Contato
 
-- LinkedIn: [Ana Julia](https://www.linkedin.com/in/ana-julia)
+- LinkedIn: [Ana Julia](https://www.linkedin.com/in/ana-julia-silva26/)
 - Email: anajulia.silva26@icloud.com
